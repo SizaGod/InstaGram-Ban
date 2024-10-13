@@ -37,3 +37,15 @@ We are confident in our success. However, if the service does not meet your expe
 ## Contact
 
 - [Telegram](https://t.me/SizaGod)
+
+## Banning and Recovery Proof
+
+![photo_2024-10-13_15-48-35](https://github.com/user-attachments/assets/016603e7-636e-4949-bc3e-5714f313cec1)
+![photo_2024-10-13_15-48-34](https://github.com/user-attachments/assets/d7832266-045e-4fd5-aa00-fe566909e619)
+![photo_2024-10-13_15-48-34 (2)](https://github.com/user-attachments/assets/2e23602d-0f5a-49dd-ab4d-9097ae4e973c)
+![photo_2024-10-13_15-48-33](https://github.com/user-attachments/assets/9e3a81cd-88c8-4625-9b54-c29cac1ab398)
+![photo_2024-10-13_15-48-32](https://github.com/user-attachments/assets/e56a51be-8db7-48a1-a684-de750e425cbb)
+![photo_2024-10-13_15-48-32 (2)](https://github.com/user-attachments/assets/74ff5451-6b29-4013-9b0f-524503ebb3a1)
+![photo_2024-10-13_15-48-31](https://github.com/user-attachments/assets/39dc1eb1-200d-45b2-9f4c-472740739198)
+![photo_2024-10-13_15-48-29](https://github.com/user-attachments/assets/c813b62b-146c-48f1-807c-7bbdfd2f3de4)
+
