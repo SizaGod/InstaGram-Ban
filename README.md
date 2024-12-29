@@ -1,4 +1,4 @@
-# Instagram Account Banning and Recovery Service
+# Instagram Account Banning and UnBanning Service
 
 This repository offers a specialized service for banning Instagram accounts and recovering them with high speed, reliability, and a money-back guarantee. Whether you need to ban harmful accounts or recover your own, we provide fast and effective solutions.
 
