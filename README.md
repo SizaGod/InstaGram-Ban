@@ -7,7 +7,7 @@ This repository offers a specialized service for banning Instagram accounts and 
 - Fast Account Banning: We quickly handle requests to ban accounts violating Instagram’s community guidelines or engaging in harmful activities.  
 - Account Recovery: Get your account back if it has been wrongfully banned, compromised, or hacked.  
 - Guaranteed Results: We ensure accounts are banned or recovered as requested.  
-- Refund Policy: Full refund if the service is unsuccessful within the promised time.  
+- Refund Policy: Full refund if the service is unsuccessful within the promised time.   
 - Secure and Confidential: Your information is handled with utmost care and discretion.
 
 ## How It Works
